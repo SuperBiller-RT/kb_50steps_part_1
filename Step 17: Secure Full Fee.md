@@ -1,0 +1,102 @@
+https://recruitmenttraining.com/courses/the-50-steps-of-world-class-recruitment/lessons/step-17-secure-full-fee-9-16-mins/
+
+The 50 Steps To World Class Recruitment
+Step 17: Secure Full Fee
+
+In step 13, I highlighted the financial importance to you, of refining and improving your negotiation skills.
+In this clip, we are looking at one of the most common instances where superior negotiation ability will help you to earn more money for no extra effort.
+That is when taking a vacancy from a brand-new client.
+Of course, from time to time, existing clients will try to negotiate and reduce your fees, but the front line of fee defence is with brand-new clients.
+As we join Mike Walmsley sharing a tactic that will help defend your fees, pay close attention to his market trader, or as he puts it, bazaar analogy.
+And think carefully about how much time you have invested so far to develop this critically important skill - in comparison to people who negotiate on a day-to-day basis.
+
+[00:02:29] Anyone been on a bazaar in Asia? In Morocco? In Turkey? Those guys are masters at negotiation. They try all kinds of things. One that worked on me actually on holiday in Turkey, I was trying to negotiate for some trinket for my daughter and he said "Sir you insult me". It's quite good actually. I thought - really sorry about that. It's a tactic isn't it? Am I really insulting him? I probably paid three times over the odds for it - who knows. I thought I got a good deal. Why are they good at negotiation? Sure - they're doing it they do it from early days, 5 years old in the family business, next thing you know they're 30 and they're doing it every day. So negotiation is a skill you can develop.
+
+
+[00:03:29] Let's imagine you were looking to buy a car. If you were looking to buy that one, sadly apart from novelty value, my guess is you would negotiate hard and you'd say ".come on it's going to need some wheels I need to buy some new wheels. You need to knock at least £200 off for that". Would you do that?
+
+[00:03:53] And yet, if you going to buy this car and you're in the BMW showroom, nice tea and coffee, leather seats, "Sit down sir, would you like cappuccino?" How hard would you negotiate on a car where you could get £5,000 off? It's crazy. So what have BMW done? What have they done in order to defend the sale price of their cars? What have they done around that? They've got a good service behind it. They've got the brand. This is what they've done. They've created a perception of value. That car, it seems rude to ask for a big chunk off because it's one of the world's best cars. This car , ,well of course it's an old banger therefore I'm going to knock £200 off it. But actually, I could get get £2/3000 on this if I negotiate hard. So why do people not do it? And what I'm really getting at here, for you, is when you take a vacancy create a perception of value.
+
+
+I’ve reminded you a few times of the importance of making every vacancy you take, easier to fill.
+
+When you ask more questions and take more detail than your competitor, Bullets you create a perception that your service is more valuable.
+
+Create a perception of value
+
+Can you see that when clients understand why what you're offering is worth the investment, it’s easier to justify your fee?
+
+[00:05:03] So in essence you take a vacancy more thoroughly and in more detail than anyone else has ever done with them, with a pro forma. You then ask them to tell you that your service is better than anyone else by saying to them - how happy are you with the level of detail I've taken today?
+
+[00:05:19] "Oh it's way better than the other recruiters".
+
+[00:05:24] Then you explain to them the amount of work that's going to go into filling the job.
+
+[00:05:31] So let me explain Mrs. Client what I'm going to do next. The hard work for me starts here but I'm very happy with that, if you and I are working together in partnership. I've just tapped into our database which is extremely powerful and candidate rich from our network and I've got 47 people on my long list here. I'm going to start calling them this evening. Now this will be a big process because I'm going to re interview every candidate specifically against your role. I'm going to use the technical elimination questions to weed out people that you might not want to see. They look good, but for some reason they're not the right people. And by the time I've done this I'll be down to the best three or four people for the position. How does that process sound to you? My fee for that is 25% .
+
+[00:06:24] "25% - that's too expensive!".
+
+[00:06:24] Can I take you back a moment ago. you told me that three of the last seven people you'd hired, you had to fire. Sorry to hear that by the way. And you very kindly told me that I'd taken more detail than any other the recruitment company you've ever dealt with. Thank you again for saying that. Don't you think the extra information I've taken today means you're less likely to suffer the mismatches that you've just described to me costing you quite a bit of money from what you told me?
+
+[00:06:49] Would that work on you?
+
+[00:06:51] Now you might be a skilled negotiator, you might still try and push me down and that's a topic for a different time. The point I'm making here is master the art a fee defence and you'll add thousands to you billings and you have more fun to be honest. When they're crushing you on the rates and you give in and you give in and you give in and you're down here somewhere. Don't be there, be up here.
+
+
+If you’re an experienced recruiter watching this clip, think back to vacancies that you’ve taken recently..
+
+Which fee defence questions did you ask?
+
+Here are 3 examples Bullets
+
+Fee defence questions
+
+How will you or the company be affected if this role were to remain unfilled?
+How many people have you recruited in the last year?
+How many have not worked out and why?
+
+
+
+And which other fee defence tactics did you use to protect fees? bulltes
+
+How much detail did you take in comparison to other recruitment companies?
+
+Protect fees when taking vacancies
+More detail
+Fee defence questions
+How you will fill the role
+Comparison
+Rebuttals
+
+
+
+Did you increase the perception of value by explaining in detail the amount of work you’re going to do to fill their vacancy?
+
+After taking the vacancy, did you ask them how happy they were with the level of detail and how it compared to other recruiters that they’ve worked with before?
+
+And which rebuttals did you use when the client tried to reduce your fees?
+
+Here is a list of rebuttals that you might find useful. But remember, rebuttals are much more powerful in combination with fee defence strategies, like the ones you’ve just seen in this clip.
+
+And, if you really want to improve your negotiation skills, practice your favourite rebuttals until they become smooth and professional, and watch every negotiation video you can in this LMS
+
+Example rate negotiation rebuttals
+1.	What is your current understanding of what we do in comparison to other recruitment companies?
+2.	When you say “It’s too expensive”, may I ask what kind of service are you comparing us with?
+3.	What’s more important to you – recruiting the very best person in the market, or saving on the fee?
+4.	Like any business we will consider discounts for bulk buying, but I can’t discount for a one-off placement. So why don’t we get this job filled and then I’ll sit down with you and look at a deal for committed future business?
+5.	If your other supplier deals with you at 15%, but has other companies at 30%, where do you think they will send their best candidates?
+6.	What do you think of the old adage “You get what you pay for in life”?
+7.	What candidate sourcing strategies did they discuss with you to ensure that they find the very best candidate in the market? How much experience, personal contacts and market knowledge does the other recruiter possess?
+8.	How important do you think it is that a recruiter goes the extra mile to fill this role with the very best person? For 15%, do you really believe anyone will be committed enough to call candidates out of office hours at 8pm or 9pm in the evening?
+
+9.	I agree it is a big investment. Don’t you agree that’s why it is essential that your project is given 100% focus, commitment and resources so that it gets filled with the very best candidate?
+
+10.	I assume that your company prioritises its workload in order of importance?  Have you ever considered that recruitment companies might do the same? At 15%, would you say you are an A, B or C class client for the other supplier? Perhaps I should explain what you get from us as a priority, A class customer?
+
+11.	How much does it cost each time you recruit the wrong person?	A moment ago, you kindly said I’d taken more detail than any other recruiter you’d dealt with. If I can consistently save you that cost doesn’t the little extra for my service become a minor concern?
+12.	Putting rates to one side for a moment, how interested are you in seeing him? I can understand you wanting a good deal, but this candidate is registered with me exclusively and I can place them at any one of 3 companies with no discount. If you were in my shoes, how would you handle that request?
+13.	As you can see from the detailed workflow of our processes, there are many things that we do that our competitors don’t. I can’t offer you that comprehensive service for less, but if price is critical, which part of the service do you not want?
+
+
+I look forward to joining you in step 18, grading your vacancy to decide how much time and effort to invest in filling it.
